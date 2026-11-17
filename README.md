@@ -1,4 +1,12 @@
-## WIP prolly meow
+## WIP meow meow
+You can call me Teddy or Victor, I am 21.
+I have a strong disinterest in interacting with minors. Assuming I'm on 18+, DNI if you are below that age. If I am on the safe server, brief interaction is ok, but I do not want to be friends with you at all. Otherwise, feel free to strike up conversation or interact with me! You'll usually see me in either a Sabretooth skin or as Shadow the hedgehog. I am very selective about who I choose to befriend.
+If you think I'm weird or you don't like me just block or ignore me, I couldn't care less what a stranger on pony.town thinks lmao
+
+Visit my strawpage linked on my profile for further information regarding my DNI, myself, & my interests. I am not taking gimmicks.
+
+This readme is a WIP, it's nothing fancy or cute at the moment, which is due to change sometime. OK bye :3
+
 
 <!--
 **PierrotPig/PierrotPig** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
